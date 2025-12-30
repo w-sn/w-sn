@@ -5,5 +5,7 @@
 ㅤㅤㅤㅤㅤㅤ ⁀♡⃞　  [𝓻*entry*](https://rentry.co/soomebunny) 𓎟𓎟 
 
 ◞ ㅤ𝒢  𝒹iscord @ vvclll   ꕀ   ♰  𝓉g  @ soomebunny   𓎟𓎟 ㅤ 
+
+⏖ㅤㅤ♪ **pfp cr lambapostle on x**
  
 <img width="99" height="55" alt="tumblr_522caa4f079fc1130dca421771907420_1be4f6be_100" src="https://github.com/user-attachments/assets/d2ccde46-e572-4d6e-a8c1-19669d069a8b" />
